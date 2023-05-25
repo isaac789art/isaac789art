@@ -1,2 +1,1 @@
-### Hi there 👋
-# Isaac Troaquero C# Developer 😎 
+### Hi there 😎 🤙  
